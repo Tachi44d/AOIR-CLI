@@ -61,3 +61,5 @@ Q: What did one DNA strand say to the other DNA strand?
 A: "Do these genes make me look fat?"
 
 What do you call a magic dog? A labracadabrador
+
+What’s orange and sounds like a carrot? A parrot.
