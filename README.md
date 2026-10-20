@@ -64,4 +64,4 @@ What do you call a magic dog? A labracadabrador
 
 What’s orange and sounds like a carrot? A parrot.
 
-Het is bruin en gaat van de berg, wat is het? Een skiwi 
+Wat is geel en hangt aan een auto? Een banaanhangwagen 
