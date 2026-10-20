@@ -67,3 +67,5 @@ What’s orange and sounds like a carrot? A parrot.
 Het is bruin en gaat van de berg, wat is het? Een skiwi 
 
 Wat is geel en hangt aan een auto? Een banaanhangwagen
+
+Wat is groen en hangt aan de muur? Kermit de sticker
